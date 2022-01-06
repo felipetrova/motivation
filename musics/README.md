@@ -4,15 +4,6 @@
  - “Eu disfarço tudo com cigarro, cerveja e sorriso.” Baco Exu do Blues
  - “Cê tem uma cara de quem vai fuder minha vida.” Bacu Exu do Blues
  - “O seu olhar é um caminho sem saída. O seu corpo é um caminho sem saída. Então só entro.” Bacu Exu do Blues
-
-
-
-
-
-
-
-
-
  - “A mente aberta e pelos orixás abençoado.” Planet Hemp 
  - “Me benze e traz arruda de guiné, que pra tirar essa zica só pela fé” Emicida
  - “Ganha grana só pra mostrar que grana não é porra nenhuma” Emicida
@@ -63,3 +54,4 @@ Não importa qual caminho trilhe,
 Não se ilhe.
 Sonho que se sonha junto é o maior louvor!
 AMEM." Neto Síntese
+- "Não, hoje não, não dessa vez, me livrei da depressão, 'tava fácil pro 'ceis." Emicida
