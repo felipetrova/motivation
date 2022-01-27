@@ -1,5 +1,6 @@
 # 🎧 Musics motivation!
 
+ - "I must have died alone, a long, long time ago" Nirvana
  - “Espere o melhor, prepare-se para o pior e aceite o que vier” CPM22
  - “Eu disfarço tudo com cigarro, cerveja e sorriso.” Baco Exu do Blues
  - “Cê tem uma cara de quem vai fuder minha vida.” Bacu Exu do Blues
