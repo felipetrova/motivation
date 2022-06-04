@@ -11,3 +11,4 @@
 - "Eddie, sinto muito que não consigo curar o coração. A dor emocional bate muito mais forte. E dura muito mais tempo. Você só precisa encarar e aceitar como homem." Venom 2
 - "Se você já espera a decepção, você nunca se decepciona." M.J. - Spider-Man: No Way Home
 - "O amor pode partir mais do que o coração. Pode destroçar a sua mente." Dr. Estranho - What If...?
+- "Tempos perigosos favorecem homens perigosos." Albus Dumbledore - Fantastic Beasts: The Secrets of Dumbledore
