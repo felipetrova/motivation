@@ -3,6 +3,7 @@
 - “Às vezes, a verdade não é boa o bastante. Às vezes, as pessoas merecem mais. Às vezes, merecem ter toda a sua fé recompensada.” Batman
 - "Não é quem eu sou por dentro e sim, o que eu faço é que me define." Batman
 - “Is it just me, or is it getting crazier out there?” Joker
+- "The worst part about having a mental illness is people expect you to behave as if you don't." Joker
 - “É horrível tirar a fé de um homem. É como tirar o futuro dele.” The Alienist (Netflix)
 - "Our weaknesses sometimes serve us better than our strengths." The Alienist (Netflix)
 - “As pessoas vivem três vidas. A primeira termina com a perda da ingenuidade, a segunda com a perda da inocência e a terceira com a perda da própria vida.” Dark (Netflix)
