@@ -14,3 +14,4 @@
 - "O amor pode partir mais do que o coração. Pode destroçar a sua mente." Dr. Estranho - What If...?
 - "Tempos perigosos favorecem homens perigosos." Albus Dumbledore - Fantastic Beasts: The Secrets of Dumbledore
 - "Se apegar ao passado é perder o rumo na vida." / "To dwell in the past is to lose one's path." - DCU Superman: Man of Tomorrow
+- "Quando acredita nas próprias mentiras, quando acredita que detém o poder, perde a noção da realidade, porque acredita que tudo é verdade." O Beco do Pesadelo
