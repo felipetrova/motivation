@@ -56,3 +56,4 @@ Não se ilhe.
 Sonho que se sonha junto é o maior louvor!
 AMEM." Neto Síntese
 - "Não, hoje não, não dessa vez, me livrei da depressão, 'tava fácil pro 'ceis." Emicida
+- "Uma mente moderna porém mal acabada;" Criolo - Lion Man
