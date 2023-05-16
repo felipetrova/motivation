@@ -57,3 +57,11 @@ Sonho que se sonha junto é o maior louvor!
 AMEM." Neto Síntese
 - "Não, hoje não, não dessa vez, me livrei da depressão, 'tava fácil pro 'ceis." Emicida
 - "Uma mente moderna porém mal acabada;" Criolo - Lion Man
+- "Weep not for roads untraveled
+Weep not for paths left lone
+'Cause beyond every bend is a long blinding end
+It's the worst kind of pain I've known
+Weep not for roads untraveled
+Weep not for sights unseen
+May your love never end, and if you need a friend
+There's a seat here, alongside me" Linkin Park – Talking to Myself
