@@ -8,3 +8,4 @@
  - "Sejamos gratos, pois se não aprendemos muito hoje, pelo menos aprendemos um pouco; se não aprendemos um pouco, pelo menos não ficamos doentes; e se ficamos doentes, pelo menos não morremos; portanto, sejamos todos gratos.” SIDARTHA GAUTAMA, O BUDA
  - "Sometimes it is the people no one can imagine anything of who do the things no one can imagine." Alan Turing
  - "Whoever saves one life, saves the world entire." Talmud
+ - "Pessoas que acreditam não ignorar nada não procuraram ou não se depararam com a fronteira entre o que é sabido e o que não é no universo." Astrofísica para apressados, Neil deGrasse Tyson.
