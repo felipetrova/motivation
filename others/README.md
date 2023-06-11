@@ -9,3 +9,4 @@
  - "Sometimes it is the people no one can imagine anything of who do the things no one can imagine." Alan Turing
  - "Whoever saves one life, saves the world entire." Talmud
  - "Pessoas que acreditam não ignorar nada não procuraram ou não se depararam com a fronteira entre o que é sabido e o que não é no universo." Astrofísica para apressados, Neil deGrasse Tyson.
+ - "Uma jornada de mil quilômetros precisa começar com um simples passo." (Lao Tzu)
