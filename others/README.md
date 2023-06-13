@@ -10,4 +10,4 @@
  - "Whoever saves one life, saves the world entire." Talmud
  - "Pessoas que acreditam não ignorar nada não procuraram ou não se depararam com a fronteira entre o que é sabido e o que não é no universo." Astrofísica para apressados, Neil deGrasse Tyson.
  - "Uma jornada de mil quilômetros precisa começar com um simples passo." (Lao Tzu)
- - "A sua é a luz pela qual meu espírito nasceu: - Você é o meu sol, minha lua, e todas as minhas estrelas." (E.E. Cummings)
+ - "Sua é a luz pela qual nasce meu espírito. És meu sol, minha lua e minhas estrelas." (E.E. Cummings)
