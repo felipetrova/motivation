@@ -11,3 +11,4 @@
  - "Pessoas que acreditam não ignorar nada não procuraram ou não se depararam com a fronteira entre o que é sabido e o que não é no universo." Astrofísica para apressados, Neil deGrasse Tyson.
  - "Uma jornada de mil quilômetros precisa começar com um simples passo." (Lao Tzu)
  - "Sua é a luz pela qual nasce meu espírito. És meu sol, minha lua e minhas estrelas." (E.E. Cummings)
+ - "Conhece-te a ti mesmo e conhecerás o universo e os deuses." (Sócrates)
