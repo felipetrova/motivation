@@ -17,3 +17,4 @@
 - "Quando acredita nas próprias mentiras, quando acredita que detém o poder, perde a noção da realidade, porque acredita que tudo é verdade." O Beco do Pesadelo
 - "O medo leva à raiva, a raiva leva ao ódio e o ódio leva ao sofrimento." Yoda
 - "Melhor professor, o fracasso é."
+- "Me conheceu em uma época muito estranha de minha vida." Clube da Luta
