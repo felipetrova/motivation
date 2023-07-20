@@ -12,3 +12,4 @@
  - "Uma jornada de mil quilômetros precisa começar com um simples passo." (Lao Tzu)
  - "Sua é a luz pela qual nasce meu espírito. És meu sol, minha lua e minhas estrelas." (E.E. Cummings)
  - "Conhece-te a ti mesmo e conhecerás o universo e os deuses." (Sócrates)
+ - "From the time you wake up to time you go to sleep, choose the hard right over the easy wrong, showing up the bare minimum." Nick Bare (https://www.youtube.com/watch?v=VXNM2jzBiXI)
