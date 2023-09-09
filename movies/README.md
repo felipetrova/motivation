@@ -18,3 +18,5 @@
 - "O medo leva à raiva, a raiva leva ao ódio e o ódio leva ao sofrimento." Yoda
 - "Melhor professor, o fracasso é."
 - "Me conheceu em uma época muito estranha de minha vida." Clube da Luta
+- "Por que o amor, a ausência de amor, o fim do amor, a necessidade de amor geram tamanha violência? / Why does love, the absence of love, the end of love, the need for love, result in so much violence?" - Entre Mulheres, 2022
+- 
