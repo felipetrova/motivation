@@ -26,6 +26,7 @@
  - “Violência é uma doença. Não se cura uma doença espalhando-a a mais pessoas.”
  - “às vezes não me considero parte desse mundo” Black Alien
  - "A vida é ritual - parto.
+ - "Eles querem que você se sinta mal, pois assim eles se sentem bem." CBJR
 No meio do mundo, a sós, num salto intenso.
 Denso contraste do firmamento ao asfalto.
 Plana alto até pousar na carne e flertar com o veneno,
