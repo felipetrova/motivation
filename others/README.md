@@ -14,3 +14,5 @@
  - "Conhece-te a ti mesmo e conhecerás o universo e os deuses." (Sócrates)
  - "From the time you wake up to the time you go to sleep, choose the hard right over the easy wrong, showing up the bare minimum." Nick Bare (https://www.youtube.com/watch?v=VXNM2jzBiXI)
  - "Sometimes in our life, we need to take a breather. Find a way, space, peace, or in some cases, find yourself again. We don’t need to “carry” all the stuff, people, or whatever. Keep working, keep doing, and most importantly, keep being yourself. Enjoy your process." Felipe Trova
+ - "Os planos de Deus às vezes são difíceis de entender. Mas fica muito mais fácil se soubermos que muitas vezes o destino é a própria jornada." Garage Training (https://www.youtube.com/watch?v=wJxc4MVpe-k)
+ - 
